@@ -7,28 +7,27 @@
     - Где-то на привозе ~300₽
 
 1. Аквариум круглый для маленькой рыбки
-   - [wildberries](https://www.wildberries.ru/catalog/123005571/detail.aspx?targetUrl=MS&size=216305114) ~2,000₽
+   - [Wildberries](https://www.wildberries.ru/catalog/123005571/detail.aspx?targetUrl=MS&size=216305114) ~2,000₽
 
 1. Вакуматор
-   - [wildberries](https://www.wildberries.ru/catalog/100258998/detail.aspx?targetUrl=LC&size=158040570) ~3,400₽
-   - [wildberries](https://www.wildberries.ru/catalog/156243794/detail.aspx?targetUrl=LC&size=260695303) ~4,300₽
-   
+   - [Wildberries](https://www.wildberries.ru/catalog/100258998/detail.aspx?targetUrl=LC&size=158040570) ~3,400₽
+   - [Wildberries](https://www.wildberries.ru/catalog/156243794/detail.aspx?targetUrl=LC&size=260695303) ~4,300₽
 
 1. Маска горнолыжная Glissade
-   - [ozon](https://ozon.ru/t/wq6p2MN) ~2,200₽
-   - [ozon](https://ozon.ru/t/080enRb) ~4,700₽
+   - [Ozon](https://ozon.ru/t/wq6p2MN) ~2,200₽
+   - [Ozon](https://ozon.ru/t/080enRb) ~4,700₽
    
 1. Шлем горнолыжный Glissade
-   - [ozon](https://ozon.ru/t/7np13R3) ~4,300₽
+   - [Ozon](https://ozon.ru/t/7np13R3) ~4,300₽
    
 1. Полусфера балансировочная
-   - [wildberries](https://www.wildberries.ru/catalog/42461556/detail.aspx?targetUrl=GP&size=84932675) ~4,500₽
+   - [Wildberries](https://www.wildberries.ru/catalog/42461556/detail.aspx?targetUrl=GP&size=84932675) ~4,500₽
 
 1. Аквариум Xiaomi Mijia MYG100 (на будущее)
-   - [ozon](https://ozon.ru/t/7np13R3) ~9,300₽
+   - [Ozon](https://ozon.ru/t/7np13R3) ~9,300₽
 
 1. Наушники Sony WH-1000XM4 Black
-   - [ozon](https://ozon.ru/t/6V83R9k) ~22,000₽
+   - [Ozon](https://ozon.ru/t/6V83R9k) ~22,000₽
 
 1. Сушильная машина Gorenje DNE92/BGNCIS
    - [Мвидео](https://www.mvideo.ru/products/400077979) ~80,000₽

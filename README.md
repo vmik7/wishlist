@@ -18,7 +18,7 @@
    - [Ozon](https://ozon.ru/t/080enRb) ~4,700₽
    
 1. Шлем горнолыжный Glissade
-   - [Ozon](https://ozon.ru/t/7np13R3) ~4,300₽
+   - [Ozon](https://ozon.ru/t/VkNjAPN) ~4,300₽
    
 1. Полусфера балансировочная
    - [Wildberries](https://www.wildberries.ru/catalog/42461556/detail.aspx?targetUrl=GP&size=84932675) ~4,500₽

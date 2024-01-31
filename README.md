@@ -3,8 +3,6 @@
 1. Йогурт EPICA Crispy с лимоном
    - [Ашан](https://www.auchan.ru/product/yogurt-epica-crispy-s-limonom-semenami-tykvy-pechenem-belym-shokoladom-8-6-140-g/) ~74₽
 
-  <img src="https://www.auchan.ru/f/c/insecure/w:520/plain/https://www.auchan.ru/files/original/27260416" alt="Картинка">
-
 1. Помело
     - Где-то на привозе ~300₽
 

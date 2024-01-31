@@ -27,7 +27,7 @@
    - [Ozon](https://ozon.ru/t/7np13R3) ~9,300₽
 
 1. Душевая стойка с термостатом и тропическим душем Gappo G2491 хром, латунь
-   - [Ozon](https://ozon.ru/t/pGBXg61) ~22,000₽
+   - [Wildberries](https://www.wildberries.ru/catalog/67266476/detail.aspx) ~22,000₽
   
 1. Наушники Sony WH-1000XM4 Black
    - [Ozon](https://ozon.ru/t/6V83R9k) ~22,000₽

@@ -13,11 +13,11 @@
    - [Wildberries](https://www.wildberries.ru/catalog/100258998/detail.aspx?targetUrl=LC&size=158040570) ~3,400₽
    - [Wildberries](https://www.wildberries.ru/catalog/156243794/detail.aspx?targetUrl=LC&size=260695303) ~4,300₽
 
-1. Маска горнолыжная Glissade
+1. ~~Маска горнолыжная Glissade~~
    - [Ozon](https://ozon.ru/t/wq6p2MN) ~2,200₽
    - [Ozon](https://ozon.ru/t/080enRb) ~4,700₽
    
-1. Шлем горнолыжный Glissade
+1. ~~Шлем горнолыжный Glissade~~
    - [Ozon](https://ozon.ru/t/VkNjAPN) ~4,300₽
    
 1. Полусфера балансировочная

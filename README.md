@@ -9,7 +9,7 @@
 1. Аквариум круглый для маленькой рыбки
    - [Wildberries](https://www.wildberries.ru/catalog/123005571/detail.aspx?targetUrl=MS&size=216305114) ~2,000₽
 
-1. Вакуматор
+1. ~~Вакуматор~~
    - [Wildberries](https://www.wildberries.ru/catalog/100258998/detail.aspx?targetUrl=LC&size=158040570) ~3,400₽
    - [Wildberries](https://www.wildberries.ru/catalog/156243794/detail.aspx?targetUrl=LC&size=260695303) ~4,300₽
 

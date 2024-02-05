@@ -20,7 +20,7 @@
 1. ~~Шлем горнолыжный Glissade~~
    - [Ozon](https://ozon.ru/t/VkNjAPN) ~4,300₽
    
-1. Полусфера балансировочная
+1. ~~Полусфера балансировочная~~
    - [Wildberries](https://www.wildberries.ru/catalog/42461556/detail.aspx?targetUrl=GP&size=84932675) ~4,500₽
 
 1. Аквариум Xiaomi Mijia MYG100 (на будущее)
